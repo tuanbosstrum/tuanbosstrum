@@ -1,6 +1,4 @@
-### Hi there 👋
-
-Hoàng Lê Anh Tuấn
+👋Hoàng Lê Anh Tuấn
 
 Gmail: tuanbosstrum@gmail.com - tuanbosstrum1@gmail.com
 phone - Zalo: 0946535271
